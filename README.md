@@ -1,1 +1,1 @@
-👋 Hi, I'm Selina and I'm a 2nd Year Computer Science student at McMaster University
+👋 Hi, I'm Selina and I'm a 3rd Year Computer Science student at McMaster University
